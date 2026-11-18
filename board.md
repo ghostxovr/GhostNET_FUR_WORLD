@@ -3,6 +3,8 @@
 
 Welcome to GHOST FUR Avatar World. This world will be dedicated for public furry avatars, more plans soon to come
 
+**TEMPORARY, final will be uploaded under a different vrc acc**
+
 - Android/IOS compatibiity coming soon . . .
 - VRC Avatar group coming soon . . .
 - Discord server coming soon . . .
