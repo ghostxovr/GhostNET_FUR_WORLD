@@ -17,7 +17,7 @@ Welcome to GHOST FUR Avatar World. This world will be dedicated for public furry
 - **[11/14/26]** | Added: Christmas Novapup
 
 
-## Discord
+## DISCORD
 # Discord Server Coming Soon
 
 - Still in WIP . . .
